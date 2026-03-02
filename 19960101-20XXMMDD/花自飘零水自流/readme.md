@@ -6,7 +6,7 @@ SINK: (Single Income, No Kids)
 寻寻觅觅，似梦非梦
 
 > [!NOTE]
-> 未标明链接的需自行在 台湾博硕士论文知识加值系统： https://ndltd.ncl.edu.tw  搜索
+> 未标明链接的需自行在台湾博硕士论文知识加值系统： https://ndltd.ncl.edu.tw  搜索
 
 * [劳动部动及职业安全卫生研究所 - 我国(台湾)中高龄工作者场处境调查：企业中高龄友善文化工作者心理安全感及心理健康之探讨](https://www.ilosh.gov.tw/media/pfaf3qul/ilosh109-r308.pdf)
 * 国立中正大学成人及续教育高懿者教育研究所 - 中高龄者工作动机兴工作偏好之关系研究
