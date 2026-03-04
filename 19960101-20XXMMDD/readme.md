@@ -9,6 +9,14 @@
 
 ---
 
+* [都市社會學、資本主義與現代性](https://bp.ntu.edu.tw/001/Upload/1352/ckfile/f6fd6119-53ee-4d5a-a592-641812c7f4b1.pdf)
+* [香港中文大学 - 利益如何形成 城市吸納外來務工人員的機制](https://www.cuhk.edu.hk/ics/21c/media/articles/c090-200410013.pdf)
+* [全面清算食利阶层：钱死了，命是新的钱 - Raymond的文章 - 知乎](https://zhuanlan.zhihu.com/p/2008716748698973105)
+* [在社会上，谁能独善其身？ - 枫去的回答 - 知乎](https://www.zhihu.com/question/1926670394137489512/answer/1926931687574574519)
+
+
+---
+
 
 * [为什么知乎上有人会花费这么长的篇幅耐心地回答一个陌生人的问题？ - 桂子月中落的回答 - 知乎](https://www.zhihu.com/question/53753874/answer/1928515079751566921)
 * [为什么大学总要给学生们开设一堆毫无意义，无聊至极的水课？ - 李征义的回答 - 知乎](https://www.zhihu.com/question/447743095/answer/74746211164)
