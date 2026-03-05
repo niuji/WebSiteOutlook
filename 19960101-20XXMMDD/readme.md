@@ -9,6 +9,7 @@
 * [階級世代：窮小孩與富小孩的機會不平等](https://zh.z-library.sk/book/0vpx14Nnvr/%E9%9A%8E%E7%B4%9A%E4%B8%96%E4%BB%A3%E7%AA%AE%E5%B0%8F%E5%AD%A9%E8%88%87%E5%AF%8C%E5%B0%8F%E5%AD%A9%E7%9A%84%E6%A9%9F%E6%9C%83%E4%B8%8D%E5%B9%B3%E7%AD%89-our-kids-the-american-dream-in-crisis.html)
 * [中国婚姻正在坍塌：不是男女问题，而是阶层战争 - Laurence的文章 - 知乎](https://zhuanlan.zhihu.com/p/1974185537385542673)
 * [为什么当代年轻人如此渴望“重开人生”？ - 李文卓宇的文章 - 知乎](https://zhuanlan.zhihu.com/p/1998505988517565523)
+* [为什么大部分老实人改不掉反应慢的毛病，被欺辱了不会当场反击，只会事后记仇？ - 设置信息的回答 - 知乎](https://www.zhihu.com/question/9967937857/answer/1906295367013740588)
 
 ---
 
