@@ -13,6 +13,7 @@
 * [香港中文大学 - 利益如何形成 城市吸納外來務工人員的機制](https://www.cuhk.edu.hk/ics/21c/media/articles/c090-200410013.pdf)
 * [全面清算食利阶层：钱死了，命是新的钱 - Raymond的文章 - 知乎](https://zhuanlan.zhihu.com/p/2008716748698973105)
 * [在社会上，谁能独善其身？ - 枫去的回答 - 知乎](https://www.zhihu.com/question/1926670394137489512/answer/1926931687574574519)
+* [为什么中国社会容错率显得那么低？其他国家容错率也跟中国一样吗？ - 吾牧之的回答 - 知乎](https://www.zhihu.com/question/595084077/answer/1925255370588258376)
 
 
 ---
