@@ -56,4 +56,5 @@
 * [一个人的核心能力是什么？ - 知乎用户cSEQeW的回答 - 知乎](https://www.zhihu.com/question/524777137/answer/1960982713453516754)
 * [BILIBI - 如何选对陪你一生的人？找对象三大原则！](https://www.bilibili.com/video/BV1rqrWB6E3N)
 * [“山西大同订婚强奸”与“河北邢台收30万彩礼女子拒同房法院判定不予离婚”哪个社会影响大一些？ - 知乎](https://www.zhihu.com/question/2011222287291027943)
+* [文明的最后博弈：从“顶端优势”到无限倒退的诅咒 - 借佛还神的文章 - 知乎](https://zhuanlan.zhihu.com/p/2000397755059823863)
 
