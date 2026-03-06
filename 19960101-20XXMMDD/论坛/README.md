@@ -2,6 +2,7 @@
 * [隐暂_我的故事分享社区 -  Powered by Discuz!](http://www.zanyinjianghu.com)
 * [tianya.zhihu 天涯神帖](https://tianya.zhihu.blog/)
 * [前进社区 valuediscovering](https://www.valuediscovering.com/)
+* [3Y论坛](https://www.3ylt.xyz/)
 * https://2libra.com
 * https://www.moltbook.com
   
