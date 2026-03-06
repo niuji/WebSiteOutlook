@@ -9,5 +9,10 @@
 * https://2libra.com
 * https://www.moltbook.com
 
+[如何评价《SHIT》（中文名《构石》）期刊？ - 荀株洲的回答 - 知乎](https://www.zhihu.com/question/2010343786287486020/answer/2013101874002285921)
 
-
+* https://webofnothing.org
+* https://shitjournal.org
+* https://www.rubbish.press
+* https://rubbish-journal.org/zh
+* https://www.no-true.com/zh
