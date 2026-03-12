@@ -19,6 +19,7 @@
 * [BILIBILI - 去相亲还不知道问什么，不知道怎么判断女生为人，记死这九个含金量问题（生活、社交、价值观、性格、健康、经济......）](https://www.bilibili.com/video/BV18cFQzCEUe)
 * [BILIBILI - 相亲和女生第一次见面该聊什么，有什么注意事项](https://www.bilibili.com/video/BV1ucKVzQEUo)
 * [BILIBILI - 相亲必问的10个问题，避免人财两空，成为二婚男](https://www.bilibili.com/video/BV1smjnzfEtf)
+* [用 Galgame 的方式追女孩子，真的有用吗？ - 无何乡居士的回答 - 知乎](https://www.zhihu.com/question/30505167/answer/2013706791268163607)
 * [私生子女都有继承权了，那要结婚证有什么用? - 安又蓝的回答 - 知乎](https://www.zhihu.com/question/6287102861/answer/1943416494177354704)
 * [女生会察觉到男生对她的暗恋吗？ - 知乎](https://www.zhihu.com/question/538676006/answer/2560389197)
 * [为什么00后都没有性了？ - 尘埃落定的回答 - 知乎](https://www.zhihu.com/question/5740013329/answer/1994179803344019742)
