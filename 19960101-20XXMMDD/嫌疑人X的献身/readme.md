@@ -11,5 +11,6 @@
 * [为什么社会上善良的老实人爱吃亏，但还要从小教育小孩子善良？ - 墨苍离的回答 - 知乎](https://www.zhihu.com/question/6942641778/answer/111241971646)
 * [为什么这么多人觉得雪莉的死亡是因为财阀？ - 布鲁斯CH的回答 - 知乎](https://www.zhihu.com/question/421076094/answer/1970297284)
 * [韩国 21 岁「蛇蝎美人」AI 策划杀人致 2 死 1 伤，这暴露了哪些社会问题？ - 知乎](https://www.zhihu.com/question/2012502079755794068)
+* [bilibili - 2026最新解禁！韩国江北旅馆连环杀人案：被全网追捧的清纯女杀手，无滤镜真容曝光](https://www.bilibili.com/video/BV1TcPQzEEFP)
 
 
