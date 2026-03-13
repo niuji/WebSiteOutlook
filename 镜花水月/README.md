@@ -38,6 +38,7 @@
 * [一县之人可治国，为什么蜀汉后期人才凋敝? - 陈野亮的回答 - 知乎](https://www.zhihu.com/question/1900285307842196897/answer/2011112110369834393)
 * [BILIBILI - 广东省考考生P图篡改成绩误导竞争者，将面临何种处理？](https://www.bilibili.com/video/BV14oAhzxEZo)
 * [苏联解体真正的原因是什么？ - 再论秦的回答 - 知乎](https://www.zhihu.com/question/516855895/answer/71603666337)
+* [普通家庭怎么带孩子见世面？ - St.Paul的回答 - 知乎](https://www.zhihu.com/question/603774107/answer/1949842859495760807)
 * 互联网已经将绝大部分信息差抹除了，知识已经随处可以获得，为何大部分人依旧无法获得大幅突破？
     * [Thoughts Memo的回答 - 知乎](https://www.zhihu.com/question/689452741/answer/1916097566908610366)
     * [Sigon的回答 - 知乎](https://www.zhihu.com/question/689452741/answer/16289577569)
