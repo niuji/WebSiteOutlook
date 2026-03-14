@@ -8,3 +8,7 @@ quora
 
 * https://www.quora.com/How-do-foreigners-view-Mao
 * https://www.quora.com/What-makes-Maos-Little-Red-Book-into-the-second-most-published-printed-sold-bought-and-read-books-in-the-whole-world-after-the-Bible
+
+金瓶梅
+
+* https://ealc.fas.harvard.edu/chinese-literature-236-chinas-banned-book-reading-jin-ping-mei
