@@ -21,6 +21,7 @@ quora
 * https://ealc.fas.harvard.edu/chinese-literature-236-chinas-banned-book-reading-jin-ping-mei
   * download：https://storage.lib.uchicago.edu/pres/2016/pres2016-0383-01-01.pdf
 * https://cis.nccu.edu.tw/coursemap/Students/CourseDetail.aspx?schYy=104&schSmt=1&subNum=031008&subGop=06&smt=1&teaNum=119497&depNum=T04&gdeTpe=1
+* https://www.bilibili.com/video/BV1xt421w7JD
 
 ---
 
