@@ -26,6 +26,8 @@ quora
 
 * [BILIBILI - 人性之书《金瓶梅》到底讲了什么](https://www.bilibili.com/video/BV1xt421w7JD)
 * [BILIBILI - 【吸奇侠】第一奇书《金瓶梅》01 天饼星的陨落](https://www.bilibili.com/video/BV1hw411H79u)
+* [《金瓶梅》白話版 文学城电台](https://zh.wenxuecity.com/radio/post.php?act=album_view&albumid=291&userid=490593)
+* [笔趣阁 - 《白话金瓶梅》](https://www.biquge.tw/book/3098865.html)
 
 ---
 
@@ -33,4 +35,4 @@ quora
 * [《繡像金瓶梅》崇禎足本原文新版橫排 pdf, epub, txt, doc 文件](https://archive.org/details/20210209_20210209_0144/%E9%87%91%E7%93%B6%E6%A2%85_%E5%B4%87%E7%A5%AF%E6%9C%AC_%E6%96%B0%E7%89%88%E6%A8%AA%E6%8E%92/mode/1up)
 * [臺北國家圖書館 《金瓶梅詞話》萬曆原本彩色掃描 國立故宮博物院藏](https://archive.org/details/20210217_20210217_1959/%E9%87%91%E7%93%B6%E6%A2%85%E8%A9%9E%E8%A9%B1_%E5%BD%A9%E8%89%B2%E6%8E%83%E6%8F%8F%E6%96%87%E6%AA%94%E4%B8%80_%E8%87%BA%E5%8C%97%E6%95%85%E5%AE%AE%E5%8D%9A%E7%89%A9%E9%99%A2%E8%97%8F_%E6%98%8E%E8%90%AC%E6%9B%86%E4%B8%81%E5%B7%B3%E5%88%8A%E6%9C%AC/page/n789/mode/2up)
 * [中国哲学书电子化计划 《金瓶梅》 中英对照](https://ctext.org/jinpingmei/ch1/zhs)
-* [笔趣阁 - 《白话金瓶梅》](https://www.biquge.tw/book/3098865.html)
+
