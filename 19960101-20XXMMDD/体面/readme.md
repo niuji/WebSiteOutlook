@@ -28,6 +28,7 @@
 * [一个人刚入社会，如何提高社会经验，避免被利用？ - 人丑家穷点背的回答 - 知乎](https://www.zhihu.com/question/375213425/answer/1052159705)
 * [社会教会你的第一课是什么？ - 知乎](https://www.zhihu.com/question/1931958919309276400)
 * [一个乐于助人的人如何避免被当做滥好人？ - 莞小颜的回答 - 知乎](https://www.zhihu.com/question/21669156/answer/1971210092486563610)
+* [男子因儿子被欺负，拦截儿子同学问话被拘 10 天，提起行政诉讼未获法院支持 ，此行为是否构成寻衅滋事？ - 大懵的回答 - 知乎](https://www.zhihu.com/question/666756976/answer/1935690638155846180)
 
 
 [ACADEMIC HUB - 解析青少年犯罪率高峰之現象：「低自我控制」「與成熟代溝」之再議 (國立政治大學)](https://ah.lib.nccu.edu.tw/item?item_id=94612&locale=zh_TW) （在线阅读）
